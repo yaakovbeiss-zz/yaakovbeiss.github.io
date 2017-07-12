@@ -1,1 +1,1 @@
-[Live](www.yaakovbeiss.com))
+[Live](http://www.yaakovbeiss.com)
